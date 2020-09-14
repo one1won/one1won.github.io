@@ -1,7 +1,7 @@
 ### one1won.github.io
 
-![wedding_1](https://user-images.githubusercontent.com/64151478/93092418-5ce47180-f6da-11ea-874f-56774ff4eded.jpg)
+![wedding_new_1](https://user-images.githubusercontent.com/64151478/93095213-cd40c200-f6dd-11ea-9073-c19aebec7583.jpg)
 
-![wedding_2](https://user-images.githubusercontent.com/64151478/93093010-265b2680-f6db-11ea-9dda-f7f674b87074.jpg)
+![wedding_new_2](https://user-images.githubusercontent.com/64151478/93095234-d2057600-f6dd-11ea-892c-9f23ba26499c.jpg)
 
-![wedding_3](https://user-images.githubusercontent.com/64151478/93093024-2b1fda80-f6db-11ea-859f-a92721c5188b.jpg)
+![wedding_new_3](https://user-images.githubusercontent.com/64151478/93095246-d5006680-f6dd-11ea-878b-486759d5b964.jpg)
